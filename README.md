@@ -5,7 +5,7 @@
 - 📫 How to reach me :
 - Email: racovita.ag@gmail.com
 - Instagram: @raco_is_here
-- 
+- I would say that my greatest asset is my adaptability and the fact that I consider myself a generalist.
 
 <!---
 aRacovita/aRacovita is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
